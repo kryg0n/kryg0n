@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Maanit @kryg0n
+- 👋 Hi, I’m MK @kryg0n
 - 👀 I’m interested in everything that has a PLOT
 - 🌱 I’m currently learning to live life
 - 💞️ I’m looking to collaborate on project called LIFE
